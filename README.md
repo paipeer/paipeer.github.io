@@ -1,4 +1,7 @@
 ### 欢迎来到我的个人作品展示合集
+
+注意：如此网页被嵌套，防盗链网页将显示无法打开，请鼠标右键[在新标签页打开链接查看]
+
 ---------------------
 
 👨🏻‍💻 代码编程|python
@@ -58,7 +61,3 @@
 [西华杯申报书提交截止时间推迟啦~](https://mp.weixin.qq.com/s/QUwP94dscQSi9CoedVjSDQ)
 
 [西华杯这是试图引起你注意的、优秀的“西华杯”~](https://mp.weixin.qq.com/s/cPX-brSAR9VkCBmETALILA)
-
-
- 
-
