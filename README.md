@@ -1,4 +1,8 @@
-### 文学作品
+### 个人作品合集
+
+:octocat: 代码编程|python
+
+[Github作品博客](https://jim6699.github.io/)
 
 📖 期刊论文|普刊
 
