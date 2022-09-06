@@ -7,7 +7,7 @@
 
 🐱 微信表情包|合作
 
-[花梨喵（只有在微信中点击才能访问）](https://jim6699.github.io/)
+[花梨喵（只有在微信中点击才能访问）](https://w.url.cn/s/AM96URH#wechat_redirect)
 
 📖 期刊论文|普刊
 
@@ -62,3 +62,5 @@
 [西华杯申报书提交截止时间推迟啦~](https://mp.weixin.qq.com/s/QUwP94dscQSi9CoedVjSDQ)
 
 [西华杯这是试图引起你注意的、优秀的“西华杯”~](https://mp.weixin.qq.com/s/cPX-brSAR9VkCBmETALILA)
+
+
