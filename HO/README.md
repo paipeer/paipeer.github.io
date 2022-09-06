@@ -37,5 +37,16 @@
 
 [西华杯这是试图引起你注意的、优秀的“西华杯”~](https://mp.weixin.qq.com/s/cPX-brSAR9VkCBmETALILA)
 
+星火辅导员工作室|视频作品
+
+[西华大学赛博朋克2022](https://www.douyin.com/video/7087022000065006883)
+
+[只字不提的想念](https://www.douyin.com/video/7043726736969714980)
+
+[归心](https://www.douyin.com/video/7058908413484469512)
+
+[管理学院欢迎你-蜜雪冰城版](https://www.douyin.com/video/6999835751995149576)
+
+[与光同航](https://www.douyin.com/video/6993269659457883422)
 
  
