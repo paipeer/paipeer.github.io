@@ -9,7 +9,7 @@
 
 [花梨喵（微信表情包仅限微信才能访问）](https://w.url.cn/s/AM96URH#wechat_redirect)
 
-[这就是中国力量（视频）](https://weixin.qq.com/sph/ARiPz1)
+[这就是中国力量（微信视频号仅限微信才能访问）](https://weixin.qq.com/sph/A8C1Tf)
 
 📖 期刊论文|普刊
 
