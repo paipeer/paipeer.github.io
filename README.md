@@ -5,12 +5,6 @@
 
 [Github作品博客](https://jim6699.github.io/)
 
-🐱 业余|合作项目
-
-[花梨喵（微信表情包仅限微信才能访问）](https://w.url.cn/s/AM96URH#wechat_redirect)
-
-[这就是中国力量（微信视频号仅限微信才能访问）](https://weixin.qq.com/sph/A8C1Tf)
-
 📖 期刊论文|普刊
 
 [在人力资源管理中计算机应用的分析](https://www.weiyun.com/preview?fileid=d7a4c9c2-68ce-41c3-a58a-321c701e3f3a&pdirkey=f70acd39912821e0e1e6326c20c6699d&filename=%E6%99%AE%E9%80%9A%E6%9C%9F%E5%88%8A-%E9%94%A6%E7%BB%A3-%E5%9C%A8%E4%BA%BA%E5%8A%9B%E8%B5%84%E6%BA%90%E7%AE%A1%E7%90%86%E4%B8%AD%E8%AE%A1%E7%AE%97%E6%9C%BA%E5%BA%94%E7%94%A8%E7%9A%84%E5%88%86%E6%9E%90.pdf&sharekey=VPvp7xdg)
@@ -67,9 +61,12 @@
 
 🐱 业余|合作项目
 
+花梨喵（微信表情包|仅限微信扫码查看）
 
-<img src="https://s1.328888.xyz/2022/09/07/5rbQn.png" width="100px">花梨喵（微信表情包|仅限微信扫码查看）
+<img src="https://s1.328888.xyz/2022/09/07/5rbQn.png" width="100px">
 
-<img src="https://s1.328888.xyz/2022/09/07/5rBch.png" width="100px">这就是中国力量（视频|仅限微信扫码查看）
+这就是中国力量（视频|仅限微信扫码查看）
+
+<img src="https://s1.328888.xyz/2022/09/07/5rBch.png" width="100px">
 
 
