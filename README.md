@@ -5,9 +5,11 @@
 
 [Github作品博客](https://jim6699.github.io/)
 
-🐱 微信表情包|合作
+🐱 业余|合作项目
 
-[花梨喵（只有在微信中点击才能访问）](https://w.url.cn/s/AM96URH#wechat_redirect)
+[花梨喵（微信表情包仅限微信才能访问）](https://w.url.cn/s/AM96URH#wechat_redirect)
+
+[这就是中国力量（视频）](https://weixin.qq.com/sph/ARiPz1)
 
 📖 期刊论文|普刊
 
