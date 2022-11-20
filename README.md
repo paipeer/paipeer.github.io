@@ -11,7 +11,7 @@
 
 [《运用 IASE 方法设计的手机充电头的电插条可旋转装置》](https://www.weiyun.com/preview?fileid=68b90fdc-7845-403a-9f3d-a62376387aca&pdirkey=f70acd39912821e0e1e6326c20c6699d&filename=%E7%A8%8B%E5%B0%8F%E9%BB%8E1%20%20%E4%BD%95%E7%82%B3%E6%9D%BE2%20%20%E9%82%93%E6%B5%B7%E6%B4%8B3-%E3%80%8A%E6%96%B0%E6%95%99%E8%82%B2%E3%80%8B%E7%94%A8%E7%A8%BF%E9%80%9A%E7%9F%A5%E5%8D%95.pdf&sharekey=Gm9hqkHb)
 
-🎬 星火辅导员工作室|视频作品
+🎬 星火辅导员工作室|视频作品（电脑访问跳转更方便~）
 
 [西华大学 赛博朋克2022⭐⭐⭐](https://www.douyin.com/video/7087022000065006883)
 
@@ -65,10 +65,10 @@
 
 花梨喵（表情包 仅限微信扫码查看）
 
-<img src="https://s1.328888.xyz/2022/09/07/5rbQn.png" width="100px">
+<img src="https://picabstract-preview-ftn.weiyun.com/ftn_pic_abs_v3/05fca1cad7b0465b79e77fc246e6725ef835c6f2e3b8cf3045fa787834d928c445ef33ef35a386156bf7a8e63012ed9e?pictype=scale&from=30113&version=3.3.3.3&fname=%E8%8A%B1%E6%A2%A8%E5%96%B5.PNG&size=750" width="100px">
 
 这就是中国力量（视频 仅限微信扫码查看）
 
-<img src="https://s1.328888.xyz/2022/09/07/5rBch.png" width="100px">
+<img src="https://picabstract-preview-ftn.weiyun.com/ftn_pic_abs_v3/45f5383951645d827d3a4565caa0ea120ebcaac0b0f2eca513a1071acc1d389bd9dd0409e243deb4bbf5091e074cb295?pictype=scale&from=30113&version=3.3.3.3&fname=%E8%BF%99%E5%B0%B1%E6%98%AF%E4%B8%AD%E5%9B%BD%E5%8A%9B%E9%87%8F.PNG&size=750" width="100px">
 
 
